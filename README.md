@@ -1,2 +1,0 @@
-# Cesar-Elvyn
-OPÉRATIONNELLES
